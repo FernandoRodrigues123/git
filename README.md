@@ -1,1 +1,1 @@
-blablabla
+aqui temos informações relativas projeto em nivel tecnico
